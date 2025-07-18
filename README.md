@@ -26,7 +26,6 @@
   <p align="center">
     <img src="https://i.pinimg.com/736x/fd/fe/4b/fdfe4bbb7295a13b3bc2be00e671ad52.jpg" width="200" height="200" hspace="10" >
     <img src="https://i.pinimg.com/1200x/c3/1e/ae/c31eae686bbeacdf4ea1ac7fdbad31b9.jpg" width="215" height="215" hspace="10" >
-  <img src="https://i.pinimg.com/1200x/d3/48/9b/d3489ba5f93177090fc0dfc1954469c6.jpg" width="180" height="180" hspace="10" >
   <img src="https://i.pinimg.com/1200x/a1/41/12/a141121471fb59d9058030dfef9eb5d7.jpg" width="180" height="180" hspace="10" >
 </p>
 
