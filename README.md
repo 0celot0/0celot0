@@ -1,13 +1,16 @@
-<img src="https://i.pinimg.com/1200x/52/fd/74/52fd74c7a7daf059479ccc67e13cc64c.jpg" alt="Girl in a jacket" width="2000" height="300">
+<img src="https://i.postimg.cc/yYjkQVY2/pe49fb.png" alt="Girl in a jacket" width="1000" height="500">
+
+<p align="center">
+<img src="https://i.pinimg.com/736x/ed/53/70/ed5370df6de8b70bcc58bf87fb162fac.jpg" alt="Girl in a jacket" width="500" height="500">
 
 <p align="center">
  I am most likely playing roblox or drawing || I apologize if I do not respond to messages!
   
-<p>✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;&bull;✦</p>
+
 
 <p align="center">
   
-  <img width="200" height="300" src="https://static.wikia.nocookie.net/bsdmayoi/images/9/9f/0646_Dazai_Osamu_sd.png/revision/latest?cb=20240222055034">
+  
 </p>
 
 <p align="center">
@@ -22,18 +25,12 @@
       <a href= "https://en.pronouns.page/@0celot_o">Pronoun card</a>
   }
 
+<img src="https://i.postimg.cc/yYjkQVY2/pe49fb.png" alt="Girl in a jacket" width="1000" height="500">
 
-
-<p>✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;&bull;✦</p>
-
-<p>
-  <p align="center">
-    <img src="https://i.pinimg.com/736x/fd/fe/4b/fdfe4bbb7295a13b3bc2be00e671ad52.jpg" width="200" height="200" hspace="10" >
-    <img src="https://i.pinimg.com/1200x/c3/1e/ae/c31eae686bbeacdf4ea1ac7fdbad31b9.jpg" width="215" height="215" hspace="10" >
-  <img src="https://i.pinimg.com/1200x/a1/41/12/a141121471fb59d9058030dfef9eb5d7.jpg" width="180" height="180" hspace="10" >
-</p>
-
-   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=0celot0)
+<p align="center">
+ <img src="https://chuuyacomehome.carrd.co/assets/images/image01.gif?v08767071752061" alt="Girl in a jacket" width="250" height="250">
+ 
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=0celot0)
 
 
 
