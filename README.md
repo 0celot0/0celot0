@@ -22,6 +22,8 @@
       <a href= "https://en.pronouns.page/@0celot_o">Pronoun card</a>
   }
 
+
+
 <p>✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;✦&bull;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&middot;&bull;&bull;✦</p>
 
 <p>
@@ -30,6 +32,8 @@
     <img src="https://i.pinimg.com/1200x/c3/1e/ae/c31eae686bbeacdf4ea1ac7fdbad31b9.jpg" width="215" height="215" hspace="10" >
   <img src="https://i.pinimg.com/1200x/a1/41/12/a141121471fb59d9058030dfef9eb5d7.jpg" width="180" height="180" hspace="10" >
 </p>
+
+   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=0celot0)
 
 
 
