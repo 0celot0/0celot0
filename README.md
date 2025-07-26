@@ -4,7 +4,7 @@
 <img src="https://i.pinimg.com/736x/ed/53/70/ed5370df6de8b70bcc58bf87fb162fac.jpg" alt="Girl in a jacket" width="500" height="500">
 
 <p align="center">
- I am most likely playing roblox or drawing || I apologize if I do not respond to messages!
+ I am most likely playing roblox, drawing, or doing something else with pony town on in the background || I apologize if I do not respond to messages!
   
 
 
