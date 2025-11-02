@@ -15,13 +15,7 @@
 <p align="center">
   {
       ╰┈➤ 
-      <a href="https://0celot00.straw.page">Personal Strawpage!</a>
-      ★
-      <a href="https://ponytownprof.straw.page">Read b4 interact!</a>
-      ★
-      <a href= "https://0celot00.atabook.org">Sign my atabook!!</a>
-      ★
-      <a href= "https://en.pronouns.page/@0celot_o">Pronoun card</a>
+      <a href="https://guns.lol/0celot_0">Click to see other socials + current activity!!</a>
   }
 
 <img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=e3c0bc0f" alt="Girl in a jacket" width="1000" height="500">
