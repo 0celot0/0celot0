@@ -3,9 +3,9 @@
 
 <p>
   <p align="center">
-    <img src="https://static.wixstatic.com/media/32069a_0b149174502a45139b68681ae1d66f98~mv2.gif" width="100" height="500" hspace="10" >
-    <img src="https://i.pinimg.com/1200x/9b/30/b0/9b30b0a8adfdcbc0bcfe5b0660a59438.jpg" width="750" height="750" hspace="10" >
-  <img src="https://static.wixstatic.com/media/32069a_0b149174502a45139b68681ae1d66f98~mv2.gif" width="100" height="500" hspace="10" >
+    <img src="https://static.wixstatic.com/media/32069a_0b149174502a45139b68681ae1d66f98~mv2.gif" width="70" height="100" hspace="10" >
+    <img src="https://i.pinimg.com/1200x/9b/30/b0/9b30b0a8adfdcbc0bcfe5b0660a59438.jpg" width="500" height="500" hspace="10" >
+  <img src="https://static.wixstatic.com/media/32069a_0b149174502a45139b68681ae1d66f98~mv2.gif" width="70" height="100" hspace="10" >
 </p>
 
 </p>
