@@ -1,9 +1,14 @@
 ♫ ![](https://komarev.com/ghpvc/?username=0celot0&color=690000&style=plastic)
 <img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=e3c0bc0f" width="2000" height="750">
 
-<p align="center">
- <img src="https://i.pinimg.com/1200x/9b/30/b0/9b30b0a8adfdcbc0bcfe5b0660a59438.jpg" width="750" height="750" hspace="10" >
+<p>
+  <p align="center">
+    <img src="https://static.wixstatic.com/media/32069a_0b149174502a45139b68681ae1d66f98~mv2.gif" width="100" height="500" hspace="10" >
+    <img src="https://i.pinimg.com/1200x/9b/30/b0/9b30b0a8adfdcbc0bcfe5b0660a59438.jpg" width="750" height="750" hspace="10" >
+  <img src="https://static.wixstatic.com/media/32069a_0b149174502a45139b68681ae1d66f98~mv2.gif" width="100" height="500" hspace="10" >
+</p>
 
+</p>
 </p>
 
 <p align="center">
@@ -21,15 +26,18 @@
 <p align="center">
  $\color{#f00}{\textsf{╰┈➤}}$	
  <a href="https://guns.lol/0celot_0">Click to see other socials + current activity!!</a>
- 
-
-<img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=e3c0bc0f" alt="Girl in a jacket" width="1000" height="500">
+</p>
 
 
-<img src="https://static.wikia.nocookie.net/okegom/images/8/8b/F-Ivlis35.png/revision/latest?cb=20201008195715" alt="My Image">
-<span>     $\color{#f00}{\textsf{IVLIS X SATANICK DNIII}}$	</span>
 
+<p>
+ <p align="center" >
+  <img src="https://static.wikia.nocookie.net/okegom/images/8/8b/F-Ivlis35.png/revision/latest?cb=20201008195715" alt="My Image">
+  <span>     $\color{#f00}{\textsf{IVLIS X SATANICK DNIII}}$	</span>
+</p>
 
+<p align="center" >
+ <img src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="750">
 
 
 
