@@ -1,28 +1,33 @@
 ♫ ![](https://komarev.com/ghpvc/?username=0celot0&color=690000&style=plastic)
-<img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=e3c0bc0f" width="1000" height="500">
-
-
-<p align="center">
-<img src="https://i.pinimg.com/1200x/9b/30/b0/9b30b0a8adfdcbc0bcfe5b0660a59438.jpg"width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/ef121ad5-81bd-46c4-84b4-5cb1d39eabec" />
+<img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=e3c0bc0f" width="2000" height="750">
 
 <p align="center">
- I am most likely playing roblox, drawing, or doing something else with pony town on in the background || I apologize if I do not respond to messages!
+ <img src="https://i.pinimg.com/1200x/9b/30/b0/9b30b0a8adfdcbc0bcfe5b0660a59438.jpg" width="750" height="750" hspace="10" >
+
+</p>
+
+<p align="center">
+ $\color{#f00}{\textsf{I am most likely playing roblox, drawing, or doing something else with pony town on in the background, I apologize if I do not respond to messages!}}$	
  
-  
+ 
+<p>
+  <p align="center">
+    <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b14c77e0-8e91-40b4-9210-60e308384c51/da6frsm-cc3b0be3-74c4-4f95-ab51-0aa092135ab2.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9iMTRjNzdlMC04ZTkxLTQwYjQtOTIxMC02MGUzMDgzODRjNTEvZGE2ZnJzbS1jYzNiMGJlMy03NGM0LTRmOTUtYWI1MS0wYWEwOTIxMzVhYjIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.DlE-l-gxSQH2IvcCgee7iITvdD_zO31LtCeSWh1dH54" width="100" height="100" hspace="10" >
+
+</p>
   
 </p>
 
 <p align="center">
-  {
-      ╰┈➤ 
-      <a href="https://guns.lol/0celot_0">Click to see other socials + current activity!!</a>
-  }
+ $\color{#f00}{\textsf{╰┈➤}}$	
+ <a href="https://guns.lol/0celot_0">Click to see other socials + current activity!!</a>
+ 
 
 <img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=e3c0bc0f" alt="Girl in a jacket" width="1000" height="500">
 
 
 <img src="https://static.wikia.nocookie.net/okegom/images/8/8b/F-Ivlis35.png/revision/latest?cb=20201008195715" alt="My Image">
-<span>     IVLIS X SATANICK DNIII</span>
+<span>     $\color{#f00}{\textsf{IVLIS X SATANICK DNIII}}$	</span>
 
 
 
