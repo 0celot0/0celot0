@@ -7,16 +7,16 @@
 </p>
 
 <p align="center">
- $\color{#f00}{\textsf{I am most likely playing roblox, drawing, or doing something else with pony town on in the background, I apologize if I do not respond to messages!}}$	
- 
- 
-<p>
-  <p align="center">
-    <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b14c77e0-8e91-40b4-9210-60e308384c51/da6frsm-cc3b0be3-74c4-4f95-ab51-0aa092135ab2.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9iMTRjNzdlMC04ZTkxLTQwYjQtOTIxMC02MGUzMDgzODRjNTEvZGE2ZnJzbS1jYzNiMGJlMy03NGM0LTRmOTUtYWI1MS0wYWEwOTIxMzVhYjIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.DlE-l-gxSQH2IvcCgee7iITvdD_zO31LtCeSWh1dH54" width="100" height="100" hspace="10" >
+ $\color{#f00}{\textsf{I am most likely playing roblox, drawing, or doing something else with pony town on in the background, I apologize if I do not respond!⋆˚࿔}}$	
 
+
+ <p>
+  <p align="center">
+    <img src="https://media.tenor.com/sRL5jAfDjMcAAAAj/flame-lit.gif" width="50" height="50" hspace="10" >
+    <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b14c77e0-8e91-40b4-9210-60e308384c51/da6frsm-cc3b0be3-74c4-4f95-ab51-0aa092135ab2.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9iMTRjNzdlMC04ZTkxLTQwYjQtOTIxMC02MGUzMDgzODRjNTEvZGE2ZnJzbS1jYzNiMGJlMy03NGM0LTRmOTUtYWI1MS0wYWEwOTIxMzVhYjIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.DlE-l-gxSQH2IvcCgee7iITvdD_zO31LtCeSWh1dH54" width="100" height="100" hspace="10" >
+  <img src="https://media.tenor.com/sRL5jAfDjMcAAAAj/flame-lit.gif" width="50" height="50" hspace="10" >
 </p>
-  
-</p>
+ 
 
 <p align="center">
  $\color{#f00}{\textsf{╰┈➤}}$	
