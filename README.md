@@ -1,47 +1,39 @@
-♫ ![](https://komarev.com/ghpvc/?username=0celot0&color=690000&style=plastic)
-<img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=e3c0bc0f" width="2000" height="750">
+♫ ![](https://komarev.com/ghpvc/?username=0celot0&color=679ecb&style=plastic)
 
-<p>
-  <p align="center">
-    <img src="https://static.wixstatic.com/media/32069a_0b149174502a45139b68681ae1d66f98~mv2.gif" width="55" height="250" >
-    <img src="https://i.pinimg.com/1200x/9b/30/b0/9b30b0a8adfdcbc0bcfe5b0660a59438.jpg" width="400" height="350" hspace="10" >
-  <img src="https://static.wixstatic.com/media/32069a_0b149174502a45139b68681ae1d66f98~mv2.gif" width="55" height="250" >
-</p>
+<p align="center">
+    <img src="https://files.catbox.moe/sj65cr.gif" width="750" height="500">
+
+<p align="center">
+    <img src="https://i.pinimg.com/736x/9f/62/77/9f6277eed4b91de0904cf7d254579923.jpg" width="400" height="350" hspace="10" >
+
 
 </p>
 </p>
 
 <p align="center">
- $\color{#f00}{\textsf{I am most likely playing roblox, drawing, or doing something else with pony town on in the background, I apologize if I do not respond!⋆˚࿔}}$	
+ $\color{#679ecb}{\textsf{I am most likely playing roblox, drawing, or doing something else with pony town on in the background, I apologize if I do not respond!⋆˚࿔}}$	
 
 
  <p>
   <p align="center">
-    <img src="https://media.tenor.com/sRL5jAfDjMcAAAAj/flame-lit.gif" width="50" height="50" hspace="10" >
-    <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b14c77e0-8e91-40b4-9210-60e308384c51/da6frsm-cc3b0be3-74c4-4f95-ab51-0aa092135ab2.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9iMTRjNzdlMC04ZTkxLTQwYjQtOTIxMC02MGUzMDgzODRjNTEvZGE2ZnJzbS1jYzNiMGJlMy03NGM0LTRmOTUtYWI1MS0wYWEwOTIxMzVhYjIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.DlE-l-gxSQH2IvcCgee7iITvdD_zO31LtCeSWh1dH54" width="100" height="100" hspace="10" >
-  <img src="https://media.tenor.com/sRL5jAfDjMcAAAAj/flame-lit.gif" width="50" height="50" hspace="10" >
+    <img src="https://i.postimg.cc/G8Zk3JmC/b121.gif" width="50" height="50" hspace="10" >
+    <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1dc0073a-e985-4aa9-85d0-4152ebb4c7e4/dgwtspm-37719868-355f-4c4f-8431-ad39d3eca347.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8xZGMwMDczYS1lOTg1LTRhYTktODVkMC00MTUyZWJiNGM3ZTQvZGd3dHNwbS0zNzcxOTg2OC0zNTVmLTRjNGYtODQzMS1hZDM5ZDNlY2EzNDcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.E04Zr1cnVyuXYeLs203YwTsFxYQt9yCgxQdUwI_Kfio" width="100" height="100" hspace="10" >
+  <img src="https://i.postimg.cc/G8Zk3JmC/b121.gif" width="50" height="50" hspace="10" >
 </p>
- 
 
 <p align="center">
- $\color{#f00}{\textsf{╰┈➤}}$	
+ $\color{#679ecb}{\textsf{╰┈➤}}$	
  <a href="https://guns.lol/0celot_0">Click to see other socials + current activity!!</a>
 </p>
 
 <p align="center">
- $\color{#f00}{\textsf{╰┈➤}}$	
+ $\color{#679ecb}{\textsf{╰┈➤}}$	
  <a href="https://colormytree.me/2025/01KBTDCZSC2VP6AA7VRHGR3WGR">COLOR MY TREE PLSS!! 🙏
 
 
 
-<p>
- <p align="center" >
-  <img src="https://static.wikia.nocookie.net/okegom/images/8/8b/F-Ivlis35.png/revision/latest?cb=20201008195715" alt="My Image">
-  <span>     $\color{#f00}{\textsf{IVLIS X SATANICK DNIII}}$	</span>
-</p>
-
 <p align="center" >
- <img src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="750">
+ <img src="https://gifcity.carrd.co/assets/images/gallery44/e9ecabff.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="750">
 
 
 
