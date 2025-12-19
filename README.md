@@ -35,7 +35,6 @@
 <p align="center" >
  <img src="https://gifcity.carrd.co/assets/images/gallery44/e9ecabff.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="750">
 
-
-
-
+<p align="center">
+ <h3>I LOVE VOX!!</h3>
 
