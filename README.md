@@ -12,6 +12,8 @@
 
 <p align="center">
  $\color{#679ecb}{\textsf{I am most likely playing roblox, drawing, or doing something else with pony town on in the background, I apologize if I do not respond!⋆˚࿔}}$	
+<p align="center">
+ $\color{#679ecb}{\textsf{BTW PLS DONT RP WITH ME I LITERALLY SUCK SO BAD AT IT!! I WILL PROBABLY STILL TRY TO RP BUT I SUCK SO YEAH...}}$
 
 
  <p>
