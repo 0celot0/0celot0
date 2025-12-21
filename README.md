@@ -30,7 +30,7 @@
 
 <p align="center">
  $\color{#679ecb}{\textsf{╰┈➤}}$	
- <a href="https://colormytree.me/2025/01KBTDCZSC2VP6AA7VRHGR3WGR" target="_blank" </a> COLOR MY TREE PLSS!! 🙏
+ <a target="_blank" href="https://colormytree.me/2025/01KBTDCZSC2VP6AA7VRHGR3WGR" </a> COLOR MY TREE PLSS!! 🙏
 
 
 
