@@ -1,14 +1,11 @@
 ♫ ![](https://komarev.com/ghpvc/?username=0celot0&color=679ecb&style=plastic)
 
 <p align="center">
-    <img src="https://files.catbox.moe/sj65cr.gif" width="750" height="500">
+    <img src="https://files.catbox.moe/sj65cr.gif" alt="divider" width="750" height="500">
 
 <p align="center">
-    <img src="https://i.pinimg.com/736x/9f/62/77/9f6277eed4b91de0904cf7d254579923.jpg" width="400" height="350" hspace="10" >
+    <img src="https://i.pinimg.com/736x/9f/62/77/9f6277eed4b91de0904cf7d254579923.jpg" alt="widget" width="400" height="350" hspace="10" >
 
-
-</p>
-</p>
 
 <p align="center">
  $\color{#679ecb}{\textsf{I am most likely playing roblox, drawing, or doing something else with pony town on in the background, I apologize if I do not respond!⋆˚࿔}}$	
@@ -37,6 +34,8 @@
 <p align="center" >
  <img src="https://gifcity.carrd.co/assets/images/gallery44/e9ecabff.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="750">
 
-<p align="center">
- <h3>I LOVE VOX!!</h3>
+ <figure>
+   <img src="https://media.tenor.com/KXinqm_EEf0AAAAM/hazbin-hotel-vox.gif" alt="Vox gif" width="400" height="400" >
+   <figcaption>LITERALLY ME BTW!!</figcaption>
+ </figure>
 
