@@ -37,5 +37,6 @@
  <figure>
    <img src="https://media.tenor.com/KXinqm_EEf0AAAAM/hazbin-hotel-vox.gif" alt="Vox gif" width="400" height="400" >
    <figcaption>LITERALLY ME BTW!!</figcaption>
+    <p>(btw if any1 knows how to center figures in html pls like dm me or tell me on my strawpage somewhere <333)</p>
  </figure>
 
