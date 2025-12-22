@@ -40,3 +40,5 @@
      <p>LITERALLY ME BTW!!</p>
    </figure>
 </div>
+
+ $\color{#c40000}{\textsf{if I randomly get up and move for a second assume I accidentaly pushed a key on my keyboard omg}}$	
