@@ -34,9 +34,9 @@
 <p align="center" >
  <img src="https://gifcity.carrd.co/assets/images/gallery44/e9ecabff.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="750">
 
- <figure>
-   <img src="https://media.tenor.com/KXinqm_EEf0AAAAM/hazbin-hotel-vox.gif" alt="Vox gif" width="400" height="400" >
-   <figcaption>LITERALLY ME BTW!!</figcaption>
-    <p>(btw if any1 knows how to center figures in html pls like dm me or tell me on my strawpage somewhere <333)</p>
- </figure>
-
+<div align="center">
+   <figure>
+     <img src="https://media.tenor.com/KXinqm_EEf0AAAAM/hazbin-hotel-vox.gif" alt="Vox gif" width="400" height="400" >
+     <p>LITERALLY ME BTW!!</p>
+   </figure>
+</div>
