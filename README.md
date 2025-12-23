@@ -70,3 +70,10 @@
         <img src="https://64.media.tumblr.com/cacf4bdc9dce7849be5a9a661118b320/a3b8fca11d779920-74/s250x400/52696309b8ec7f1a1af0394472d972846c654db3.gifv" alt="kiki's delivery service cat">
     </p>
 </p>
+
+<p align="center"
+    <a href="https://docs.google.com/document/d/1ER_5TM04Yh-ybdAs59_z9OogIVUz1fsnXPk5QHaAgIo/edit?usp=sharing" target="blank">Resources</a> for making profiles n stuff
+</p>
+<p align="center">
+    free online course for learning<a href="https://www.freecodecamp.org/learn/responsive-web-design-v9/" target="_blank">html, css</a> and <a href="https://www.freecodecamp.org/learn/javascript-v9/"         target="_blank">JavaScript</a> (currently doing these :))
+</p>
