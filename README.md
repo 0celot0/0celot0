@@ -71,7 +71,7 @@
     </p>
 </p>
 
-<p align="center"
+<p align="center">
     <a href="https://docs.google.com/document/d/1ER_5TM04Yh-ybdAs59_z9OogIVUz1fsnXPk5QHaAgIo/edit?usp=sharing" target="blank">Resources</a> for making profiles n stuff
 </p>
 <p align="center">
