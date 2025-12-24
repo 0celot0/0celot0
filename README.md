@@ -49,6 +49,7 @@
 <p>
     <p align="center">
         <img src="https://private-user-images.githubusercontent.com/123766193/411245858-1afd96f4-29aa-4fcc-a126-336d3b1971b0.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjY1MDk0MjUsIm5iZiI6MTc2NjUwOTEyNSwicGF0aCI6Ii8xMjM3NjYxOTMvNDExMjQ1ODU4LTFhZmQ5NmY0LTI5YWEtNGZjYy1hMTI2LTMzNmQzYjE5NzFiMC5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMjIzJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTIyM1QxNjU4NDVaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT00ZDVhZjA5NThjMzk1MTc0MDUwMDIyNGVhNjM1ODRjYzk1YTZjNDZmOTQ0ZTZmZDY5ZDc0OTU2N2M3MTYwNWI4JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.6qCLX9vIZzyL5uoo1sNYA6vIw2uYFtX6K1muhUbvRuw" alt="NIN stamp">
+        <img src="https://64.media.tumblr.com/e2c6265dd84436fcd3a8f013ca8e476a/7c3dd077ed76e2f9-89/s100x200/93c2a697eac1744d7d29e67390c9485edbc0472e.pnj" alt="NIN 2">
         <img src="https://external-media.spacehey.net/media/sup4hSuaQdTwiRHlMGoF5Pq9e0eSllkic9hDkxBrQcBs=/https://file.garden/Zio3AwrfkTgU4WyP/blinkies%20(and%20other)/stamps/1b40811e_original.jpg" alt="mcr">
         <img src="https://external-media.spacehey.net/media/sx3EiGp_iCT8N_HQpqu-l7AAjV866s4V8_nsrySTPGWs=/https://file.garden/Zio3AwrfkTgU4WyP/blinkies%20(and%20other)/stamps/tumblr_6155e72836beccdb9b6d7a05f15d8fca_9caa9985_100.png" alt="will wood and the tapeworms">
         <img src="https://external-media.spacehey.net/media/sdczLsvVs1Mj6OQqUgsJCGnhg36CUoWhSG2iHwCvt22U=/https://file.garden/Zio3AwrfkTgU4WyP/blinkies%20(and%20other)/stamps/dd48b43ab646610a16b004a6bc5a341d467313bd.webp" alt="ptv">
@@ -84,6 +85,14 @@
         <img src="https://pizzacatdelights.neocities.org/images/stamps/tumblr_aff24125e6789129bc0625d9ab8d75e8_7a7ea938_100.gif" alt="downloading images">
         <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9ef05ae6-8a84-42f4-8ab5-7860ad29ab7a/dg6a649-8f45214e-4d8b-4439-983e-74575b8f033e.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzllZjA1YWU2LThhODQtNDJmNC04YWI1LTc4NjBhZDI5YWI3YVwvZGc2YTY0OS04ZjQ1MjE0ZS00ZDhiLTQ0MzktOTgzZS03NDU3NWI4ZjAzM2UucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Cc57q8XlcyTIGkzmqhzR_1uhRnFrHUIYn3UI79DCpnY" alt="roblox noob">
         <img src="https://azs-graphics-n-things.neocities.org/stamps/071-brainrot.webp" alt="rotting brain" width="100">
+        <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/83c0368f-07f2-455d-b77f-b8f268ddfd7f/d20eis0-59e32844-c8b3-4dd2-a730-b36d37bf7fbf.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzgzYzAzNjhmLTA3ZjItNDU1ZC1iNzdmLWI4ZjI2OGRkZmQ3ZlwvZDIwZWlzMC01OWUzMjg0NC1jOGIzLTRkZDItYTczMC1iMzZkMzdiZjdmYmYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.npJUwsz5LHdkCirE_uyhBqaHBhWrCV2oK03cqsup9Qw" alt="Music i enjoy">
+        <img src="https://kopawz.neocities.org/stamphoard/futurestamps/stamps3/not_good_at_talking_ra6swm.gif" alt="not good at talking">
+        <img src="https://adriansblinkiecollection.neocities.org/stamps/c11.gif" alt="so many ideas, so little time">
+        <img src="https://64.media.tumblr.com/d6f4d1691aaecbbd9b73fdb232d6fe22/tumblr_inline_ont4mw6Ssw1u5rvwj_500.gif" alt="interests">
+        <img src="https://64.media.tumblr.com/365034bb19b1841eb7aa91ba7be3ef92/79d8b316934d24c3-97/s100x200/bb27f0557cfd699b30b2187e5ef77e52bc8d239b.pnj" alt="steam">
+        <img src="https://i.postimg.cc/nzDW5Vy1/HaUVF8q.png" alt="overreacting">
+        <img src="https://64.media.tumblr.com/d5c61aa9de05824ba41fe67c2f9118a9/a78c65f575809067-ad/s250x400/f1c6fae1d1114b45a963867e84dbe4f7c73e0625.gifv" alt="mr fox">
+        <img src="https://external-media.spacehey.net/media/s1va6avOYnES2CNpqco7C9IDh-7O8XDp1VCOovE3xC3A=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/858626fa-172f-40eb-a2fb-5a08dad5f823/d9y85h4-66377042-955d-4322-b23e-f1445eb83ad5.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzg1ODYyNmZhLTE3MmYtNDBlYi1hMmZiLTVhMDhkYWQ1ZjgyM1wvZDl5ODVoNC02NjM3NzA0Mi05NTVkLTQzMjItYjIzZS1mMTQ0NWViODNhZDUucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.qAUHVDEHRqAcYx1VvEhxEfXRZ2ONKGJcto3sG67lvZk" alt="temmie">
     </p>
 </p>
 
@@ -95,3 +104,6 @@ $\color{#c40000}{\textsf{adding more soon js u wait....}}$
 <p align="center">
     free online course for learning<a href="https://www.freecodecamp.org/learn/responsive-web-design-v9/" target="_blank">html, css</a> and <a href="https://www.freecodecamp.org/learn/javascript-v9/"         target="_blank">JavaScript</a> (currently doing these :))
 </p>
+
+<p align="center">
+    <img scr="" alt="Vox ponytonw">
