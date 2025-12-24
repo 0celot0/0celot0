@@ -105,5 +105,3 @@ $\color{#c40000}{\textsf{adding more soon js u wait....}}$
     free online course for learning<a href="https://www.freecodecamp.org/learn/responsive-web-design-v9/" target="_blank">html, css</a> and <a href="https://www.freecodecamp.org/learn/javascript-v9/"         target="_blank">JavaScript</a> (currently doing these :))
 </p>
 
-<p align="center">
-    <img scr="" alt="Vox ponytonw">
