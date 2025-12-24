@@ -9,11 +9,11 @@
 
 
 <p align="center">
- $\color{#c40000}{\textsf{I am most likely playing roblox, drawing, or doing something else with pony town on in the background, I apologize if I do not respond!⋆˚࿔}}$	
+ $\color{#c40000}{\textsf{ᴵ ᵃᵐ ᵐᵒˢᵗ ˡⁱᵏᵉˡʸ ᵖˡᵃʸⁱⁿᵍ ʳᵒᵇˡᵒˣ, ᵈʳᵃʷⁱⁿᵍ, ᵒʳ ᵈᵒⁱⁿᵍ ˢᵒᵐᵉᵗʰⁱⁿᵍ ᵉˡˢᵉ ʷⁱᵗʰ ᵖᵒⁿʸ ᵗᵒʷⁿ ᵒⁿ ⁱⁿ ᵗʰᵉ ᵇᵃᶜᵏᵍʳᵒᵘⁿᵈ, ᴵ ᵃᵖᵒˡᵒᵍⁱᶻᵉ ⁱᶠ ᴵ ᵈᵒ ⁿᵒᵗ ʳᵉˢᵖᵒⁿᵈ!⋆˚࿔}}$	
 <p align="center">
- $\color{#c40000}{\textsf{I struggle talking to newer people, mostly irl, but also a bit online. I will try to match your energy but might still be dry}}$
+ $\color{#c40000}{\textsf{ᴵ ˢᵗʳᵘᵍᵍˡᵉ ᵗᵃˡᵏⁱⁿᵍ ᵗᵒ ⁿᵉʷᵉʳ ᵖᵉᵒᵖˡᵉ, ᵐᵒˢᵗˡʸ ⁱʳˡ, ᵇᵘᵗ ᵃˡˢᵒ ᵃ ᵇⁱᵗ ᵒⁿˡⁱⁿᵉ. ᴵ ʷⁱˡˡ ᵗʳʸ ᵗᵒ ᵐᵃᵗᶜʰ ʸᵒᵘʳ ᵉⁿᵉʳᵍʸ ᵇᵘᵗ ᵐⁱᵍʰᵗ ˢᵗⁱˡˡ ᵇᵉ ᵈʳʸ}}$
  <p align="center">
-      $\color{#c40000}{\textsf{BTW PLS DONT RP WITH ME I LITERALLY SUCK SO BAD AT IT!! I WILL PROBABLY STILL TRY TO RP BUT I SUCK SO YEAH...}}$
+      $\color{#c40000}{\textsf{ᴮᵀᵂ ᴾᴸˢ ᴰᴼᴺᵀ ᴿᴾ ᵂᴵᵀᴴ ᴹᴱ ᴵ ᴸᴵᵀᴱᴿᴬᴸᴸʸ ˢᵁᶜᴷ ˢᴼ ᴮᴬᴰ ᴬᵀ ᴵᵀ!! ᴵ ᵂᴵᴸᴸ ᴾᴿᴼᴮᴬᴮᴸʸ ˢᵀᴵᴸᴸ ᵀᴿʸ ᵀᴼ ᴿᴾ ᴮᵁᵀ ᴵ ˢᵁᶜᴷ ˢᴼ ʸᴱᴬᴴ...}}$
 
 
  <p>
@@ -25,12 +25,13 @@
 
 <p align="center">
  $\color{#c40000}{\textsf{╰┈➤}}$	
- <a href="https://0celot00.straw.page">Strawpage</a> ✦ <a href="https://0celot00.atabook.org">Atabook</a> ✦ <a href=""></a>
+ <a href="https://0celot00.straw.page">ˢᵗʳᵃʷᵖᵃᵍᵉ</a> ✦ <a href="https://0celot00.atabook.org">ᵃᵗᵃᵇᵒᵒᵏ</a> ✦ <a href="https://en.pronouns.page/@0celot_o">ᵖʳⁿˢ ᶜᶜ
+</a>
 </p>
 
 <p align="center">
  $\color{#c40000}{\textsf{╰┈➤}}$	
- <a target="_blank" href="https://colormytree.me/2025/01KBTDCZSC2VP6AA7VRHGR3WGR" </a> COLOR MY TREE PLSS!! 🙏
+ <a target="_blank" href="https://colormytree.me/2025/01KBTDCZSC2VP6AA7VRHGR3WGR" </a> ᶜᴼᴸᴼᴿ ᵀᴿᴱᴱ ᴾᴸˢˢ!! 🙏
 
 
 
@@ -40,11 +41,11 @@
 <div align="center">
    <figure>
      <img src="https://media.tenor.com/KXinqm_EEf0AAAAM/hazbin-hotel-vox.gif" alt="Vox gif" width="400" height="400" >
-     <p>LITERALLY ME BTW!!</p>
+     <p>ᴸᴵᵀᴱᴿᴬᴸᴸʸ ᴹᴱ ᴮᵀᵂ!!</p>
    </figure>
 </div>
 
-<p align="center"> $\color{#c40000}{\textsf{if I randomly get up and move for a second assume I accidentaly pushed a key on my keyboard omg}}$ </p>
+<p align="center"> $\color{#c40000}{\textsf{ⁱᶠ ᴵ ʳᵃⁿᵈᵒᵐˡʸ ᵍᵉᵗ ᵘᵖ ᵃⁿᵈ ᵐᵒᵛᵉ ᶠᵒʳ ᵃ ˢᵉᶜᵒⁿᵈ ᵃˢˢᵘᵐᵉ ᴵ ᵃᶜᶜⁱᵈᵉⁿᵗᵃˡʸ ᵖᵘˢʰᵉᵈ ᵃ ᵏᵉʸ ᵒⁿ ᵐʸ ᵏᵉʸᵇᵒᵃʳᵈ ᵒᵐᵍ}}$ </p>
 
 <p>
     <p align="center">
@@ -96,12 +97,13 @@
     </p>
 </p>
 
-$\color{#c40000}{\textsf{adding more soon js u wait....}}$
+$\color{#c40000}{\textsf{ᵃᵈᵈⁱⁿᵍ ᵐᵒʳᵉ ˢᵒᵒⁿ ʲˢ ᵘ ʷᵃⁱᵗ....}}$
 
 <p align="center">
-    <a href="https://docs.google.com/document/d/1ER_5TM04Yh-ybdAs59_z9OogIVUz1fsnXPk5QHaAgIo/edit?usp=sharing" target="blank">Resources</a> for making profiles n stuff
+    <a href="https://docs.google.com/document/d/1ER_5TM04Yh-ybdAs59_z9OogIVUz1fsnXPk5QHaAgIo/edit?usp=sharing" target="blank">ᴿᵉˢᵒᵘʳᶜᵉˢ</a> ᶠᵒʳ ᵐᵃᵏⁱⁿᵍ ᵖʳᵒᶠⁱˡᵉˢ ⁿ ˢᵗᵘᶠᶠ
+
 </p>
 <p align="center">
-    free online course for learning<a href="https://www.freecodecamp.org/learn/responsive-web-design-v9/" target="_blank">html, css</a> and <a href="https://www.freecodecamp.org/learn/javascript-v9/"         target="_blank">JavaScript</a> (currently doing these :))
+    ᶠʳᵉᵉ ᵒⁿˡⁱⁿᵉ ᶜᵒᵘʳˢᵉ ᶠᵒʳ ˡᵉᵃʳⁿⁱⁿᵍ<a href="https://www.freecodecamp.org/learn/responsive-web-design-v9/" target="_blank">ʰᵗᵐˡ, ᶜˢˢ</a> ᵃⁿᵈ <a href="https://www.freecodecamp.org/learn/javascript-v9/"         target="_blank">ᴶᵃᵛᵃˢᶜʳⁱᵖᵗ</a> ⁽ᶜᵘʳʳᵉⁿᵗˡʸ ᵈᵒⁱⁿᵍ ᵗʰᵉˢᵉ :⁾⁾
 </p>
 
