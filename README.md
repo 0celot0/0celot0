@@ -37,7 +37,9 @@
  $\color{#c40000}{\textsf{╰┈➤}}$	
  <a target="_blank" href="https://colormytree.me/2025/01KBTDCZSC2VP6AA7VRHGR3WGR" </a> ᶜᴼᴸᴼᴿ ᵀᴿᴱᴱ ᴾᴸˢˢ!! 🙏
 
-
+<p align="center">
+    $\color{#c40000}{\textsf{ᴵ ᵃᵐ ¹⁴ ᵇᵗʷ ˢᵒ ʲˢ ᵏᵉᵉᵖ ᵗʰᵃᵗ ⁱⁿ ᵐⁱⁿᵈ}}$
+</p>
 
 <p align="center" >
  <img src="https://gifcity.carrd.co/assets/images/gallery44/e9ecabff.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="750">
