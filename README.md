@@ -1,5 +1,9 @@
 ![](https://komarev.com/ghpvc/?username=0celot0&color=c40000&style=plastic&abbreviated=true)
 
+<p align="center">
+    <img src="https://external-media.spacehey.net/media/s6IFKKTMsP7As4_s-9027cQ0OdHcAhyRpno_JEN9RzvM=/https://heroin-bob.github.io/SpaceHeyLayoutEditor/images/stamps/STAMP%20(1982).gif" alt="block">
+</p>
+
 </p>
 <p align="center">
     <img src="https://file.garden/Zy7nsVKnFHAuCMhW/dividers/red/red26" alt="divider" width="750" height="500">
@@ -45,6 +49,7 @@
    </figure>
 </div>
 
+
 <p align="center"> $\color{#c40000}{\textsf{ⁱᶠ ᴵ ʳᵃⁿᵈᵒᵐˡʸ ᵍᵉᵗ ᵘᵖ ᵃⁿᵈ ᵐᵒᵛᵉ ᶠᵒʳ ᵃ ˢᵉᶜᵒⁿᵈ ᵃˢˢᵘᵐᵉ ᴵ ᵃᶜᶜⁱᵈᵉⁿᵗᵃˡʸ ᵖᵘˢʰᵉᵈ ᵃ ᵏᵉʸ ᵒⁿ ᵐʸ ᵏᵉʸᵇᵒᵃʳᵈ ᵒᵐᵍ}}$ </p>
 
 <p>
@@ -56,6 +61,7 @@
         <img src="https://external-media.spacehey.net/media/sdczLsvVs1Mj6OQqUgsJCGnhg36CUoWhSG2iHwCvt22U=/https://file.garden/Zio3AwrfkTgU4WyP/blinkies%20(and%20other)/stamps/dd48b43ab646610a16b004a6bc5a341d467313bd.webp" alt="ptv">
         <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/ac3ad591-9b1b-447a-bc59-82d5a264885e/da1hrn8-7095650e-0d77-490c-b7bb-c36d79d34d07.png/v1/fill/w_99,h_56/maretu_stamp_by_kaibuttsu_da1hrn8-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC9hYzNhZDU5MS05YjFiLTQ0N2EtYmM1OS04MmQ1YTI2NDg4NWVcL2RhMWhybjgtNzA5NTY1MGUtMGQ3Ny00OTBjLWI3YmItYzM2ZDc5ZDM0ZDA3LnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.-kmqzNXd9OPotXcgdpvd20RIK_QzeCMhXbw2AVzqZM4" alt="maretu">
         <img src="https://64.media.tumblr.com/1b9d1c7b0b9460093c9caca51364e05d/8d8807c6f7bc6874-2e/s250x400/708b5e0523d69b99162429ee1fa19b01c710135d.pnj" alt="deftones" width="100">
+        <img src="https://64.media.tumblr.com/2edf04d45fd29dcace17b928d76a80a6/39f80ed755a0f3b6-4e/s100x200/c201b82b59551aaf6b38d692c9a451fa80c9b376.pnj" alt="weezer">
         <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b14c77e0-8e91-40b4-9210-60e308384c51/da6frsm-cc3b0be3-74c4-4f95-ab51-0aa092135ab2.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9iMTRjNzdlMC04ZTkxLTQwYjQtOTIxMC02MGUzMDgzODRjNTEvZGE2ZnJzbS1jYzNiMGJlMy03NGM0LTRmOTUtYWI1MS0wYWEwOTIxMzVhYjIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.DlE-l-gxSQH2IvcCgee7iITvdD_zO31LtCeSWh1dH54" alt="ivlis stamp">
         <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/736d8e86-9c51-4d96-b351-a050d5f3359b/d69fbht-e8b7317d-bc21-4cc8-bfd5-8aed3791e83f.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi83MzZkOGU4Ni05YzUxLTRkOTYtYjM1MS1hMDUwZDVmMzM1OWIvZDY5ZmJodC1lOGI3MzE3ZC1iYzIxLTRjYzgtYmZkNS04YWVkMzc5MWU4M2YucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.yyl5L0aG8DmguFsNSHev6zvNLaV2wDwpbGEilRHBkWo" alt="Madoka stamp">
         <img src="https://external-media.spacehey.net/media/sqi72KXxC1Txm0ofdorn6kaL_kJLNV2cdo2VlKM8_N2I=/https://64.media.tumblr.com/4129332788993ed2c658b94a23acb44e/92df701a7bf287ac-c1/s250x400/0188f2e9179a73e677f407ae3d82ea38f745809e.gifv" alt="basil stamp">
@@ -97,6 +103,22 @@
         <img src="https://external-media.spacehey.net/media/s1va6avOYnES2CNpqco7C9IDh-7O8XDp1VCOovE3xC3A=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/858626fa-172f-40eb-a2fb-5a08dad5f823/d9y85h4-66377042-955d-4322-b23e-f1445eb83ad5.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzg1ODYyNmZhLTE3MmYtNDBlYi1hMmZiLTVhMDhkYWQ1ZjgyM1wvZDl5ODVoNC02NjM3NzA0Mi05NTVkLTQzMjItYjIzZS1mMTQ0NWViODNhZDUucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.qAUHVDEHRqAcYx1VvEhxEfXRZ2ONKGJcto3sG67lvZk" alt="temmie">
         <img src="https://64.media.tumblr.com/3fd0abb5ba13ccffde804e45429ed053/64757379a0e331c6-16/s100x200/7d3785993cdc2e4e2e0e52646fac5efcad8b65c1.gifv" alt="nabstablook">
         <img src="https://64.media.tumblr.com/928b6bc4dad5b5a057363638319aedd9/0ec3134be5f8c9c0-c0/s100x200/3898dafa758d7758a3beda57fbbc905813ea9263.png" alt="angel devil">
+        <img src="https://external-media.spacehey.net/media/sIfoPt9oVvTHVT-p3EiQJyVNyeOJSYByKYrVDU7Or4m0=/https://64.media.tumblr.com/7d9654457ce756bbd030269843d49edd/b0bf42d5d454f47c-61/s100x200/f33503228463dc06b654d5569aa96896ddafea69.gifv" alt="bsd">
+        <img src="https://external-media.spacehey.net/media/sdK0sns2wP0l0GPsnysn0j9KtspDLubPzsSbkm6isiro=/https://adriansblinkiecollection.neocities.org/stamps/i16.png" alt="easily distracted">
+        <img src="https://external-media.spacehey.net/media/sfPRASut3KMNS4FSMd-CHz5VSJ7yNCT8E7gl4LT1nbcA=/https://adriansblinkiecollection.neocities.org/stamps/j5.png" alt="lazy drawings">
+        <img src="https://external-media.spacehey.net/media/sPvYqt4SSUCiMYfMO0nz-eYKo1dsci8GQUHst3FBiReE=/https://adriansblinkiecollection.neocities.org/stamps/f32.png" alt="studio ghibli">
+        <img src="https://external-media.spacehey.net/media/sHLB_nuFK1dTJTp2c0Vqx_TpQseEX-LBQoy-PIUBQYm4=/http://adriansblinkiecollection.neocities.org/stamps/e89.jpg" alt=":3">
+        <img src="https://external-media.spacehey.net/media/sxb-a5UeQmLThoPMNd6kDRlYPjYSCMkwRXtmDYM5kEQU=/https://adriansblinkiecollection.neocities.org/stamps/e69.gif" alt="every character is lgtb">
+        <img src="https://external-media.spacehey.net/media/sS027ZCU_z09lx67hpvSbKFkyK-NIpG0dj2IMG5A16Lo=/https://adriansblinkiecollection.neocities.org/stamps/d71.gif" alt="agree or die">
+        <img src="https://external-media.spacehey.net/media/s-UCTNqp2c8znnRJ4CGh6lpFLYBEE7LzjYNyjJE5dNiE=/https://adriansblinkiecollection.neocities.org/stamps/a59.png" alt="self taught idiot">
+        <img src="https://external-media.spacehey.net/media/sgKQPERaFe6pjfZPtIFDowl_mMM9TOO4oS9yBQPWVEfk=/https://adriansblinkiecollection.neocities.org/stamps/a49.gif" alt="smiling friends">
+        <img src="https://supplies.ju.mp/assets/images/gallery01/a7800f8c.png?v=1c1ba870" alt="cringeworthy">
+        <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1dc0073a-e985-4aa9-85d0-4152ebb4c7e4/dgwtpxl-32d33d69-04a1-4b1e-b956-a7c1aac2930e.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8xZGMwMDczYS1lOTg1LTRhYTktODVkMC00MTUyZWJiNGM3ZTQvZGd3dHB4bC0zMmQzM2Q2OS0wNGExLTRiMWUtYjk1Ni1hN2MxYWFjMjkzMGUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.UIeVIEOUNLeb2Sy1Niu3rwZNjr_GbsIPz34Jm4a0dqA" alt="husk">
+        <img src="https://external-media.spacehey.net/media/s9LsP7jlUMKylOMwoCGhc8kH6fESVRLWrEBQ2Hy8KaMI=/https://adriansblinkiecollection.neocities.org/stamps/d32.gif" alt="im not weird">
+        <img src="https://external-media.spacehey.net/media/svwq43Bhxjg-fsPuFDp6Iv9tZVcXSJRBNMNWVNwA3sbo=/https://adriansblinkiecollection.neocities.org/stamps/d5.jpg" alt="monster">
+        <img src="https://external-media.spacehey.net/media/sO1b7kQ0A0QrGg8lGja95Yy0qpuzDoVe8zmpNZpGOdLk=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1b0ad4e0-dc4b-4fd4-a6f6-f0942858176e/d3e0iks-a85e85ec-738a-475e-9452-1ba2f51cf5db.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzFiMGFkNGUwLWRjNGItNGZkNC1hNmY2LWYwOTQyODU4MTc2ZVwvZDNlMGlrcy1hODVlODVlYy03MzhhLTQ3NWUtOTQ1Mi0xYmEyZjUxY2Y1ZGIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.4QBTJdCiVtY9FegqiU3SiW2QZuDtG9XncYf_f53-W3I" alt="motivation">
+        <img src="https://external-media.spacehey.net/media/s8kd3UhimOyJO_WsvXmjhv706NdhSfdBt3y4R0CFKSBA=/https://64.media.tumblr.com/3b34548e10ba7a9ab1e955df30eeaae7/5f3839c1d4a4c8c5-df/s100x200/e2d0711d51f2234fb8f70180c6aa27143a4d2d6f.gifv" alt="plushies">
+        <img src="https://external-media.spacehey.net/media/ssYBa1NROchpaCikIWejNFJ4tdiNlAdUK84VZWhKv54Q=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c3142684-9aaa-434e-8f87-0afbc6d90bee/dapmds5-f61906bf-8dda-48be-8307-5b7966821639.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2MzMTQyNjg0LTlhYWEtNDM0ZS04Zjg3LTBhZmJjNmQ5MGJlZVwvZGFwbWRzNS1mNjE5MDZiZi04ZGRhLTQ4YmUtODMwNy01Yjc5NjY4MjE2MzkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.m5c969-mcYh7oSs3mHWS2YgG-P3FwVwSEwgWCJDAsP0" alt="underage characters">
     </p>
 </p>
 
