@@ -25,7 +25,7 @@
 
 <p align="center">
  $\color{#c40000}{\textsf{╰┈➤}}$	
- <a href="https://guns.lol/0celot_0">Click to see other socials + current activity!!</a>
+ <a href="https://0celot00.straw.page">Strawpage</a> ✦ <a href="https://0celot00.atabook.org">Atabook</a> ✦ <a href=""></a>
 </p>
 
 <p align="center">
