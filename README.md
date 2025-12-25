@@ -1,9 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=0celot0&color=c40000&style=plastic&abbreviated=true)
 
-<p align="center">
-    <img src="https://external-media.spacehey.net/media/s6IFKKTMsP7As4_s-9027cQ0OdHcAhyRpno_JEN9RzvM=/https://heroin-bob.github.io/SpaceHeyLayoutEditor/images/stamps/STAMP%20(1982).gif" alt="block">
-</p>
-
 </p>
 <p align="center">
     <img src="https://file.garden/Zy7nsVKnFHAuCMhW/dividers/red/red26" alt="divider" width="750" height="500">
