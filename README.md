@@ -54,6 +54,14 @@
 
 <p align="center"> $\color{#c40000}{\textsf{ⁱᶠ ᴵ ʳᵃⁿᵈᵒᵐˡʸ ᵍᵉᵗ ᵘᵖ ᵃⁿᵈ ᵐᵒᵛᵉ ᶠᵒʳ ᵃ ˢᵉᶜᵒⁿᵈ ᵃˢˢᵘᵐᵉ ᴵ ᵃᶜᶜⁱᵈᵉⁿᵗᵃˡʸ ᵖᵘˢʰᵉᵈ ᵃ ᵏᵉʸ ᵒⁿ ᵐʸ ᵏᵉʸᵇᵒᵃʳᵈ ᵒᵐᵍ}}$ </p>
 
+<p align="center">
+    <a href="https://docs.google.com/document/d/1ER_5TM04Yh-ybdAs59_z9OogIVUz1fsnXPk5QHaAgIo/edit?usp=sharing" target="blank">ᴿᵉˢᵒᵘʳᶜᵉˢ</a> ᶠᵒʳ ᵐᵃᵏⁱⁿᵍ ᵖʳᵒᶠⁱˡᵉˢ ⁿ ˢᵗᵘᶠᶠ
+
+</p>
+<p align="center">
+    ᶠʳᵉᵉ ᵒⁿˡⁱⁿᵉ ᶜᵒᵘʳˢᵉ ᶠᵒʳ ˡᵉᵃʳⁿⁱⁿᵍ<a href="https://www.freecodecamp.org/learn/responsive-web-design-v9/" target="_blank">ʰᵗᵐˡ, ᶜˢˢ</a> ᵃⁿᵈ <a href="https://www.freecodecamp.org/learn/javascript-v9/"         target="_blank">ᴶᵃᵛᵃˢᶜʳⁱᵖᵗ</a> ⁽ᶜᵘʳʳᵉⁿᵗˡʸ ᵈᵒⁱⁿᵍ ᵗʰᵉˢᵉ :⁾⁾
+</p>
+
 <p>
     <p align="center">
         <img src="https://private-user-images.githubusercontent.com/123766193/411245858-1afd96f4-29aa-4fcc-a126-336d3b1971b0.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjY1MDk0MjUsIm5iZiI6MTc2NjUwOTEyNSwicGF0aCI6Ii8xMjM3NjYxOTMvNDExMjQ1ODU4LTFhZmQ5NmY0LTI5YWEtNGZjYy1hMTI2LTMzNmQzYjE5NzFiMC5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMjIzJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTIyM1QxNjU4NDVaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT00ZDVhZjA5NThjMzk1MTc0MDUwMDIyNGVhNjM1ODRjYzk1YTZjNDZmOTQ0ZTZmZDY5ZDc0OTU2N2M3MTYwNWI4JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.6qCLX9vIZzyL5uoo1sNYA6vIw2uYFtX6K1muhUbvRuw" alt="NIN stamp">
@@ -136,12 +144,4 @@
 </p>
 
 $\color{#c40000}{\textsf{ᵃᵈᵈⁱⁿᵍ ᵐᵒʳᵉ ˢᵒᵒⁿ ʲˢ ᵘ ʷᵃⁱᵗ....}}$
-
-<p align="center">
-    <a href="https://docs.google.com/document/d/1ER_5TM04Yh-ybdAs59_z9OogIVUz1fsnXPk5QHaAgIo/edit?usp=sharing" target="blank">ᴿᵉˢᵒᵘʳᶜᵉˢ</a> ᶠᵒʳ ᵐᵃᵏⁱⁿᵍ ᵖʳᵒᶠⁱˡᵉˢ ⁿ ˢᵗᵘᶠᶠ
-
-</p>
-<p align="center">
-    ᶠʳᵉᵉ ᵒⁿˡⁱⁿᵉ ᶜᵒᵘʳˢᵉ ᶠᵒʳ ˡᵉᵃʳⁿⁱⁿᵍ<a href="https://www.freecodecamp.org/learn/responsive-web-design-v9/" target="_blank">ʰᵗᵐˡ, ᶜˢˢ</a> ᵃⁿᵈ <a href="https://www.freecodecamp.org/learn/javascript-v9/"         target="_blank">ᴶᵃᵛᵃˢᶜʳⁱᵖᵗ</a> ⁽ᶜᵘʳʳᵉⁿᵗˡʸ ᵈᵒⁱⁿᵍ ᵗʰᵉˢᵉ :⁾⁾
-</p>
 
