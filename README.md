@@ -9,11 +9,11 @@
 
 
 <p align="center">
- $\color{#c40000}{\textsf{ᴵ ᵃᵐ ᵐᵒˢᵗ ˡⁱᵏᵉˡʸ ᵖˡᵃʸⁱⁿᵍ ʳᵒᵇˡᵒˣ, ᵈʳᵃʷⁱⁿᵍ, ᵒʳ ᵈᵒⁱⁿᵍ ˢᵒᵐᵉᵗʰⁱⁿᵍ ᵉˡˢᵉ ʷⁱᵗʰ ᵖᵒⁿʸ ᵗᵒʷⁿ ᵒⁿ ⁱⁿ ᵗʰᵉ ᵇᵃᶜᵏᵍʳᵒᵘⁿᵈ, ᴵ ᵃᵖᵒˡᵒᵍⁱᶻᵉ ⁱᶠ ᴵ ᵈᵒ ⁿᵒᵗ ʳᵉˢᵖᵒⁿᵈ!⋆˚࿔}}$	
+ $\color{#c40000}{\textsf{Most likely doing something with pt on in the background! Apologies if I do not respond.⋆˚࿔}}$	
 <p align="center">
- $\color{#c40000}{\textsf{ᴵ ˢᵗʳᵘᵍᵍˡᵉ ᵗᵃˡᵏⁱⁿᵍ ᵗᵒ ⁿᵉʷᵉʳ ᵖᵉᵒᵖˡᵉ, ᵐᵒˢᵗˡʸ ⁱʳˡ, ᵇᵘᵗ ᵃˡˢᵒ ᵃ ᵇⁱᵗ ᵒⁿˡⁱⁿᵉ. ᴵ ʷⁱˡˡ ᵗʳʸ ᵗᵒ ᵐᵃᵗᶜʰ ʸᵒᵘʳ ᵉⁿᵉʳᵍʸ ᵇᵘᵗ ᵐⁱᵍʰᵗ ˢᵗⁱˡˡ ᵇᵉ ᵈʳʸ}}$
+ $\color{#c40000}{\textsf{I struggle with talking to new ppl sometimes.}}$
  <p align="center">
-      $\color{#c40000}{\textsf{ᴮᵀᵂ ᴾᴸˢ ᴰᴼᴺᵀ ᴿᴾ ᵂᴵᵀᴴ ᴹᴱ ᴵ ᴸᴵᵀᴱᴿᴬᴸᴸʸ ˢᵁᶜᴷ ˢᴼ ᴮᴬᴰ ᴬᵀ ᴵᵀ!! ᴵ ᵂᴵᴸᴸ ᴾᴿᴼᴮᴬᴮᴸʸ ˢᵀᴵᴸᴸ ᵀᴿʸ ᵀᴼ ᴿᴾ ᴮᵁᵀ ᴵ ˢᵁᶜᴷ ˢᴼ ʸᴱᴬᴴ...}}$
+      $\color{#c40000}{\textsf{I am really bad at rp so do not expect me to go along with ur rp or wtv}}$
 
 
  <p>
@@ -37,6 +37,16 @@
     $\color{#c40000}{\textsf{ᴵ ᵃᵐ ¹⁴ ᵇᵗʷ ˢᵒ ʲˢ ᵏᵉᵉᵖ ᵗʰᵃᵗ ⁱⁿ ᵐⁱⁿᵈ}}$
 </p>
 
+<p align="center">
+    $\color{#c40000}{\textsf{ I block freely most of the time, this is js so weirdos don't follow me!!), far right (maga n all that).}}$
+</p>
+
+DNI:
+$\color{#c40000}{\textsf{basic (racist, homo/transphobe, ect), proship/darkship (most comships r okay!), far right (maga n all that).}}$
+
+THIN ICE:
+$\color{#c40000}{\textsf{under 11 and over 18 (if it's like a quick thing then it's okay, js no lasting connections please!)}}$
+
 
 <p align="center" >
  <img src="https://gifcity.carrd.co/assets/images/gallery44/e9ecabff.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="750">
@@ -44,19 +54,21 @@
 <div align="center">
    <figure>
      <img src="https://media.tenor.com/KXinqm_EEf0AAAAM/hazbin-hotel-vox.gif" alt="Vox gif" width="400" height="400" >
-     <p>ᴸᴵᵀᴱᴿᴬᴸᴸʸ ᴹᴱ ᴮᵀᵂ!!</p>
+     <p align="center">
+         $\color{#c40000}{\textsf{LITERALLY ME BTWW!)}}$
+    </p>
    </figure>
 </div>
 
 
-<p align="center"> $\color{#c40000}{\textsf{ⁱᶠ ᴵ ʳᵃⁿᵈᵒᵐˡʸ ᵍᵉᵗ ᵘᵖ ᵃⁿᵈ ᵐᵒᵛᵉ ᶠᵒʳ ᵃ ˢᵉᶜᵒⁿᵈ ᵃˢˢᵘᵐᵉ ᴵ ᵃᶜᶜⁱᵈᵉⁿᵗᵃˡʸ ᵖᵘˢʰᵉᵈ ᵃ ᵏᵉʸ ᵒⁿ ᵐʸ ᵏᵉʸᵇᵒᵃʳᵈ ᵒᵐᵍ}}$ </p>
+<p align="center"> $\color{#c40000}{\textsf{If I randomly get up assume it's because smt on my keyboard pressed like the wasd or arrow keys}}$ </p>
 
 <p align="center">
-    <a href="https://docs.google.com/document/d/1ER_5TM04Yh-ybdAs59_z9OogIVUz1fsnXPk5QHaAgIo/edit?usp=sharing" target="blank">ᴿᵉˢᵒᵘʳᶜᵉˢ</a> ᶠᵒʳ ᵐᵃᵏⁱⁿᵍ ᵖʳᵒᶠⁱˡᵉˢ ⁿ ˢᵗᵘᶠᶠ
+    <a href="https://docs.google.com/document/d/1ER_5TM04Yh-ybdAs59_z9OogIVUz1fsnXPk5QHaAgIo/edit?usp=sharing" target="blank">Resources</a> 4 making profiles n stuff
 
 </p>
 <p align="center">
-    ᶠʳᵉᵉ ᵒⁿˡⁱⁿᵉ ᶜᵒᵘʳˢᵉ ᶠᵒʳ ˡᵉᵃʳⁿⁱⁿᵍ<a href="https://www.freecodecamp.org/learn/responsive-web-design-v9/" target="_blank">ʰᵗᵐˡ, ᶜˢˢ</a> ᵃⁿᵈ <a href="https://www.freecodecamp.org/learn/javascript-v9/"         target="_blank">ᴶᵃᵛᵃˢᶜʳⁱᵖᵗ</a> ⁽ᶜᵘʳʳᵉⁿᵗˡʸ ᵈᵒⁱⁿᵍ ᵗʰᵉˢᵉ :⁾⁾
+    Free online course for learning <a href="https://www.freecodecamp.org/learn/responsive-web-design-v9/" target="_blank">html, css</a> and <a href="https://www.freecodecamp.org/learn/javascript-v9/"         target="_blank">Javascript</a> (currently doing these they r good!!)
 </p>
 
 <p>
@@ -141,6 +153,8 @@
     </p>
 </p>
 
-$\color{#c40000}{\textsf{ᵃᵈᵈⁱⁿᵍ ᵐᵒʳᵉ ˢᵒᵒⁿ ʲˢ ᵘ ʷᵃⁱᵗ....}}$
+<p align="center">
+    $\color{#c40000}{\textsf{adding more soon js u wait....}}$
+</p>
 
 ![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=316ceak7q7qn4yb5bsnb5ivom2vq)
