@@ -25,7 +25,7 @@
 
 <p align="center">
  $\color{#c40000}{\textsf{╰┈➤}}$	
- <a href="https://0celot00.straw.page">ˢᵗʳᵃʷᵖᵃᵍᵉ</a> ✦ <a href="https://0celot00.atabook.org">ᵃᵗᵃᵇᵒᵒᵏ</a> ✦ <a href="https://en.pronouns.page/@0celot_o">ᵖʳⁿˢ ᶜᶜ
+ <a href="https://0celot00.straw.page">ˢᵗʳᵃʷᵖᵃᵍᵉ</a> ✦ <a href="https://0celot00.atabook.org">ᵃᵗᵃᵇᵒᵒᵏ</a> ✦ <a href="https://pronouns.cc/@0celot_0">ᵖʳⁿˢ ᶜᶜ
 </a>
 </p>
 
