@@ -37,16 +37,6 @@
     $\color{#c40000}{\textsf{ᴵ ᵃᵐ ¹⁴ ᵇᵗʷ ˢᵒ ʲˢ ᵏᵉᵉᵖ ᵗʰᵃᵗ ⁱⁿ ᵐⁱⁿᵈ}}$
 </p>
 
-<p align="center">
-    $\color{#c40000}{\textsf{ I block freely most of the time, this is js so weirdos don't follow me!!), far right (maga n all that).}}$
-</p>
-
-DNI:
-$\color{#c40000}{\textsf{basic (racist, homo/transphobe, ect), proship/darkship (most comships r okay!), far right (maga n all that).}}$
-
-THIN ICE:
-$\color{#c40000}{\textsf{under 11 and over 18 (if it's like a quick thing then it's okay, js no lasting connections please!)}}$
-
 
 <p align="center" >
  <img src="https://gifcity.carrd.co/assets/images/gallery44/e9ecabff.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="750">
