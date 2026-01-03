@@ -1,14 +1,18 @@
 <p align="center">
-    <img src="https://komarev.com/ghpvc/?username=0celot0&color=3d3d3d&style=for-the-badge&abbreviated=true">
+    <p align="center">
+        <img src="https://komarev.com/ghpvc/?username=0celot0&color=3d3d3d&style=for-the-badge&abbreviated=true">
+        <img src="https://file.garden/Ze88s1ucmRDZDhMX/pixels/222.gif" alt="mouse">
 </p>
 
-</p>
 <p align="center">
     <img src="https://file.garden/Zy7nsVKnFHAuCMhW/dividers/monochromatic/mono48" alt="divider" width="759" height="500">
 
-<p align="center">
-    <img src="https://i.pinimg.com/736x/58/4c/97/584c97d2c976483ea72b41a22e0b38fe.jpg" alt="widget" width="400" height="450" hspace="10" >
-
+<p>
+    <p align="center">
+        <img src="https://pixelbank.neocities.org/dangle/189.gif" alt="dangler">
+        <img src="https://i.pinimg.com/736x/58/4c/97/584c97d2c976483ea72b41a22e0b38fe.jpg" alt="widget" width="400" height="450" hspace="10" >
+        <img src="https://pixelbank.neocities.org/dangle/189.gif" alt="dangler">
+    </p>
 
 <p align="center">
      Most likely doing something with pt on in the background! Apologies if I do not respond.⋆˚࿔
