@@ -1,57 +1,39 @@
-![](https://komarev.com/ghpvc/?username=0celot0&color=c40000&style=plastic&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=0celot0&color=3d3d3d&style=for-the-badge&abbreviated=true)
 
 </p>
 <p align="center">
-    <img src="https://file.garden/Zy7nsVKnFHAuCMhW/dividers/red/red26" alt="divider" width="750" height="500">
+    <img src="https://file.garden/Zy7nsVKnFHAuCMhW/dividers/monochromatic/mono48" alt="divider" width="759" height="500">
 
 <p align="center">
-    <img src="https://i.pinimg.com/736x/d5/ad/ee/d5adee496c36c655c31aead389bd3e57.jpg" alt="widget" width="400" height="350" hspace="10" >
+    <img src="https://i.pinimg.com/736x/58/4c/97/584c97d2c976483ea72b41a22e0b38fe.jpg" alt="widget" width="400" height="450" hspace="10" >
 
 
 <p align="center">
- $\color{#c40000}{\textsf{Most likely doing something with pt on in the background! Apologies if I do not respond.⋆˚࿔}}$	
+     Most likely doing something with pt on in the background! Apologies if I do not respond.⋆˚࿔
 <p align="center">
- $\color{#c40000}{\textsf{I struggle with talking to new ppl sometimes.}}$
- <p align="center">
-      $\color{#c40000}{\textsf{I am really bad at rp so do not expect me to go along with ur rp or wtv}}$
+    I am really bad at rp so do not expect me to go along with ur rp or wtv
 
 
  <p>
   <p align="center">
-    <img src="https://gifcity.carrd.co/assets/images/gallery299/8d94df02.gif?v=e3c0bc0f" width="50" height="50" hspace="10" >
-    <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1dc0073a-e985-4aa9-85d0-4152ebb4c7e4/dgwtspm-37719868-355f-4c4f-8431-ad39d3eca347.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8xZGMwMDczYS1lOTg1LTRhYTktODVkMC00MTUyZWJiNGM3ZTQvZGd3dHNwbS0zNzcxOTg2OC0zNTVmLTRjNGYtODQzMS1hZDM5ZDNlY2EzNDcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.E04Zr1cnVyuXYeLs203YwTsFxYQt9yCgxQdUwI_Kfio" width="100" height="100" hspace="10" >
-  <img src="https://gifcity.carrd.co/assets/images/gallery299/8d94df02.gif?v=e3c0bc0f" width="50" height="50" hspace="10" >
+    <img src="https://i.imgur.com/8DTfsvj.gif" width="50" height="50" hspace="10" >
+    <img src="https://external-media.spacehey.net/media/smh0dJ4nVK7t8xlD0OVMOXtU4_Wk0SSkgL5JkXwyihYc=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/adaf4531-6b8f-4b04-9373-9b0fbd104e20/dac2emq-d3db8057-0d39-4398-946b-98e7e1c62026.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2FkYWY0NTMxLTZiOGYtNGIwNC05MzczLTliMGZiZDEwNGUyMFwvZGFjMmVtcS1kM2RiODA1Ny0wZDM5LTQzOTgtOTQ2Yi05OGU3ZTFjNjIwMjYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.QLDw5wIual50CEuTQmOPYZsgBw4MAah7q_EYJooAUlQ" width="100" height="100" hspace="10" >
+  <img src="https://i.imgur.com/8DTfsvj.gif" width="50" height="50" hspace="10" >
 </p>
 
 <p align="center">
- $\color{#c40000}{\textsf{╰┈➤}}$	
- <a href="https://0celot00.straw.page">ˢᵗʳᵃʷᵖᵃᵍᵉ</a> ✦ <a href="https://0celot00.atabook.org">ᵃᵗᵃᵇᵒᵒᵏ</a> ✦ <a href="https://pronouns.cc/@0celot_0">ᵖʳⁿˢ ᶜᶜ
+ ╰┈➤	
+ <a href="https://0celot00.straw.page">Strawpage</a> ✦ <a href="https://0celot00.atabook.org">Atabook</a> ✦ <a href="https://pronouns.cc/@0celot_0">prns cc
 </a>
 </p>
 
 <p align="center">
- $\color{#c40000}{\textsf{╰┈➤}}$	
- <a target="_blank" href="https://colormytree.me/2025/01KBTDCZSC2VP6AA7VRHGR3WGR" </a> ᶜᴼᴸᴼᴿ ᵀᴿᴱᴱ ᴾᴸˢˢ!! 🙏
-
-<p align="center">
-    $\color{#c40000}{\textsf{ᴵ ᵃᵐ ¹⁴ ᵇᵗʷ ˢᵒ ʲˢ ᵏᵉᵉᵖ ᵗʰᵃᵗ ⁱⁿ ᵐⁱⁿᵈ}}$
+    I am 14 btw so js keep that in mind..
 </p>
 
 
 <p align="center" >
- <img src="https://gifcity.carrd.co/assets/images/gallery44/e9ecabff.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="750">
-
-<div align="center">
-   <figure>
-     <img src="https://media.tenor.com/KXinqm_EEf0AAAAM/hazbin-hotel-vox.gif" alt="Vox gif" width="400" height="400" >
-     <p align="center">
-         $\color{#c40000}{\textsf{LITERALLY ME BTWW!)}}$
-    </p>
-   </figure>
-</div>
-
-
-<p align="center"> $\color{#c40000}{\textsf{If I randomly get up assume it's because smt on my keyboard pressed like the wasd or arrow keys}}$ </p>
+ <img src="https://gifcity.carrd.co/assets/images/gallery48/6e941e51.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="750">
 
 <p align="center">
     <a href="https://docs.google.com/document/d/1ER_5TM04Yh-ybdAs59_z9OogIVUz1fsnXPk5QHaAgIo/edit?usp=sharing" target="blank">Resources</a> 4 making profiles n stuff
@@ -63,7 +45,6 @@
 
 <p>
     <p align="center">
-        <img src="https://private-user-images.githubusercontent.com/123766193/411245858-1afd96f4-29aa-4fcc-a126-336d3b1971b0.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NjY1MDk0MjUsIm5iZiI6MTc2NjUwOTEyNSwicGF0aCI6Ii8xMjM3NjYxOTMvNDExMjQ1ODU4LTFhZmQ5NmY0LTI5YWEtNGZjYy1hMTI2LTMzNmQzYjE5NzFiMC5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUxMjIzJTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MTIyM1QxNjU4NDVaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT00ZDVhZjA5NThjMzk1MTc0MDUwMDIyNGVhNjM1ODRjYzk1YTZjNDZmOTQ0ZTZmZDY5ZDc0OTU2N2M3MTYwNWI4JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.6qCLX9vIZzyL5uoo1sNYA6vIw2uYFtX6K1muhUbvRuw" alt="NIN stamp">
         <img src="https://64.media.tumblr.com/e2c6265dd84436fcd3a8f013ca8e476a/7c3dd077ed76e2f9-89/s100x200/93c2a697eac1744d7d29e67390c9485edbc0472e.pnj" alt="NIN 2">
         <img src="https://external-media.spacehey.net/media/sup4hSuaQdTwiRHlMGoF5Pq9e0eSllkic9hDkxBrQcBs=/https://file.garden/Zio3AwrfkTgU4WyP/blinkies%20(and%20other)/stamps/1b40811e_original.jpg" alt="mcr">
         <img src="https://external-media.spacehey.net/media/sx3EiGp_iCT8N_HQpqu-l7AAjV866s4V8_nsrySTPGWs=/https://file.garden/Zio3AwrfkTgU4WyP/blinkies%20(and%20other)/stamps/tumblr_6155e72836beccdb9b6d7a05f15d8fca_9caa9985_100.png" alt="will wood and the tapeworms">
@@ -140,11 +121,12 @@
         <img src="https://i.postimg.cc/5yG0Jw6F/Tumblr-l-160869314128943.gif" alt="talking to myself">
         <img src="https://i.postimg.cc/k4C6BFMr/Tumblr-l-326064211541135.gif" alt="internet addict">
         <img src="https://i.postimg.cc/k5X5qmr3/dbhxtrp-6403ff8f-83ff-48b0-8df0-0aca530bc73a.png" alt="ibis user">
+        <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1dc0073a-e985-4aa9-85d0-4152ebb4c7e4/dgwtspm-37719868-355f-4c4f-8431-ad39d3eca347.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8xZGMwMDczYS1lOTg1LTRhYTktODVkMC00MTUyZWJiNGM3ZTQvZGd3dHNwbS0zNzcxOTg2OC0zNTVmLTRjNGYtODQzMS1hZDM5ZDNlY2EzNDcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.E04Zr1cnVyuXYeLs203YwTsFxYQt9yCgxQdUwI_Kfio" alt="Vox Stamp">
     </p>
 </p>
 
 <p align="center">
-    $\color{#c40000}{\textsf{adding more soon js u wait....}}$
+    adding more soon js u wait....
 </p>
 
 ![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=316ceak7q7qn4yb5bsnb5ivom2vq)
