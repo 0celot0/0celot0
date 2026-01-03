@@ -1,6 +1,6 @@
 <p align="center">
     <p align="center">
-        <img src="https://komarev.com/ghpvc/?username=0celot0&color=3d3d3d&style=for-the-badge&abbreviated=true">
+        <img src="https://komarev.com/ghpvc/?username=0celot0&color=3d3d3d&style=for-the-badge&label=❤︎">
         <img src="https://file.garden/Ze88s1ucmRDZDhMX/pixels/222.gif" alt="mouse">
 </p>
 
