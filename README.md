@@ -1,4 +1,6 @@
-![](https://komarev.com/ghpvc/?username=0celot0&color=3d3d3d&style=for-the-badge&abbreviated=true)
+<p align="center">
+    <img src="https://komarev.com/ghpvc/?username=0celot0&color=3d3d3d&style=for-the-badge&abbreviated=true">
+</p>
 
 </p>
 <p align="center">
@@ -129,4 +131,6 @@
     adding more soon js u wait....
 </p>
 
-![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=316ceak7q7qn4yb5bsnb5ivom2vq)
+<p align="center">
+    <img src="https://spotify-recently-played-readme.vercel.app/api?user=316ceak7q7qn4yb5bsnb5ivom2vq">
+</p>
