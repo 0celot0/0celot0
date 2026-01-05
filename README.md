@@ -130,6 +130,7 @@
         <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1dc0073a-e985-4aa9-85d0-4152ebb4c7e4/dgwtspm-37719868-355f-4c4f-8431-ad39d3eca347.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8xZGMwMDczYS1lOTg1LTRhYTktODVkMC00MTUyZWJiNGM3ZTQvZGd3dHNwbS0zNzcxOTg2OC0zNTVmLTRjNGYtODQzMS1hZDM5ZDNlY2EzNDcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.E04Zr1cnVyuXYeLs203YwTsFxYQt9yCgxQdUwI_Kfio" alt="Vox Stamp">
         <img src="https://external-media.spacehey.net/media/sdykRpvS7GFMs-EFdZQXo4hjE-nrt8azcWteLuIikVYU=/https://static.wikia.nocookie.net/central/images/a/a5/2024_05_03_138_Kleki.png/revision/latest?cb=20240504063305"/>
         <img src="https://pixelsafari.neocities.org/stamps/eva.gif" alt="evangelion">
+        <img src="https://adriansblinkiecollection.neocities.org/stamps/e80.gif" alt="behave different in person than online">
     </p>
 </p>
 
