@@ -128,7 +128,7 @@
         <img src="https://i.postimg.cc/k4C6BFMr/Tumblr-l-326064211541135.gif" alt="internet addict">
         <img src="https://i.postimg.cc/k5X5qmr3/dbhxtrp-6403ff8f-83ff-48b0-8df0-0aca530bc73a.png" alt="ibis user">
         <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1dc0073a-e985-4aa9-85d0-4152ebb4c7e4/dgwtspm-37719868-355f-4c4f-8431-ad39d3eca347.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8xZGMwMDczYS1lOTg1LTRhYTktODVkMC00MTUyZWJiNGM3ZTQvZGd3dHNwbS0zNzcxOTg2OC0zNTVmLTRjNGYtODQzMS1hZDM5ZDNlY2EzNDcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.E04Zr1cnVyuXYeLs203YwTsFxYQt9yCgxQdUwI_Kfio" alt="Vox Stamp">
-        <img src="https://cdn.spacehey.net/layouts/104663_ad7c81c7e455bd1845fcf78782da1095.png?expires=1767664638&token=9afc3bcf530dbee9e0751a244d448d7df8516f844cce384c1c47dbfbe040146e" alt="byler">
+        <img src="https://external-media.spacehey.net/media/sdykRpvS7GFMs-EFdZQXo4hjE-nrt8azcWteLuIikVYU=/https://static.wikia.nocookie.net/central/images/a/a5/2024_05_03_138_Kleki.png/revision/latest?cb=20240504063305"/>
     </p>
 </p>
 
