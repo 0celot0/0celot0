@@ -131,6 +131,7 @@
         <img src="https://external-media.spacehey.net/media/sdykRpvS7GFMs-EFdZQXo4hjE-nrt8azcWteLuIikVYU=/https://static.wikia.nocookie.net/central/images/a/a5/2024_05_03_138_Kleki.png/revision/latest?cb=20240504063305"/>
         <img src="https://pixelsafari.neocities.org/stamps/eva.gif" alt="evangelion">
         <img src="https://adriansblinkiecollection.neocities.org/stamps/e80.gif" alt="behave different in person than online">
+        <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e403ddee-2393-48e5-81a1-477799477017/djlbmw8-b4730543-4c54-4e2c-8e6a-596d310ae07f.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9lNDAzZGRlZS0yMzkzLTQ4ZTUtODFhMS00Nzc3OTk0NzcwMTcvZGpsYm13OC1iNDczMDU0My00YzU0LTRlMmMtOGU2YS01OTZkMzEwYWUwN2YucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.D0L38Lrl4EFNMUEZM0XJsZiRHg_i45T4LI_hepUsAg8" alt="OWM">
     </p>
 </p>
 
