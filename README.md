@@ -42,10 +42,6 @@
  <img src="https://gifcity.carrd.co/assets/images/gallery48/6e941e51.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="750">
 
 <p align="center">
-    <a href="https://docs.google.com/document/d/1ER_5TM04Yh-ybdAs59_z9OogIVUz1fsnXPk5QHaAgIo/edit?usp=sharing" target="blank">Resources</a> 4 making profiles n stuff
-
-</p>
-<p align="center">
     Free online course for learning <a href="https://www.freecodecamp.org/learn/responsive-web-design-v9/" target="_blank">html, css</a> and <a href="https://www.freecodecamp.org/learn/javascript-v9/"         target="_blank">Javascript</a> (currently doing these they r good!!)
 </p>
 
