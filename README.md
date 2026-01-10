@@ -29,7 +29,7 @@
 
 <p align="center">
  ╰┈➤	
- <a href="https://0celot00.straw.page">Strawpage</a> ✦ <a href="https://0celot00.atabook.org">Atabook</a> ✦ <a href="https://pronouns.cc/@0celot_0">prns cc
+ <a href="https://0celot00.straw.page">Strawpage</a> ✦ <a href="https://0celot00.atabook.org">Atabook</a> ✦ <a href="https://pronouns.cc/@0celot_0">prns cc</a> ✦ <a href="https://listography.com/4273821742?m=0580652416">listography</a>
 </a>
 </p>
 
