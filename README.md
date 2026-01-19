@@ -126,6 +126,8 @@ Pretty much all my stuff is on here!! (ata + straw)
         <img src="https://pixelsafari.neocities.org/stamps/eva.gif" alt="evangelion">
         <img src="https://adriansblinkiecollection.neocities.org/stamps/e80.gif" alt="behave different in person than online">
         <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e403ddee-2393-48e5-81a1-477799477017/djlbmw8-b4730543-4c54-4e2c-8e6a-596d310ae07f.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9lNDAzZGRlZS0yMzkzLTQ4ZTUtODFhMS00Nzc3OTk0NzcwMTcvZGpsYm13OC1iNDczMDU0My00YzU0LTRlMmMtOGU2YS01OTZkMzEwYWUwN2YucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.D0L38Lrl4EFNMUEZM0XJsZiRHg_i45T4LI_hepUsAg8" alt="OWM">
+        <img src="https://external-media.spacehey.net/media/sm1SB_-X26KTOmkrirRMwVzYoy_St82o5FGX7XeBbIEE=/https://64.media.tumblr.com/fcf3c7bf6c675e15615f4be2db3981a7/1ed58b27f074433e-58/s250x400/97abf56d9dc452980f6c51b6235a8c5ae2d35583.gifv" alt="Phos" />
+        <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e395d95f-d02b-4b2e-a424-8dc6a67f040a/dmsq8c-6de02491-6716-4537-9903-bd3de77ff097.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9lMzk1ZDk1Zi1kMDJiLTRiMmUtYTQyNC04ZGM2YTY3ZjA0MGEvZG1zcThjLTZkZTAyNDkxLTY3MTYtNDUzNy05OTAzLWJkM2RlNzdmZjA5Ny5naWYifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6ZmlsZS5kb3dubG9hZCJdfQ.q64HUz4BgwWKgqwb55WC3JsrgWY0o0Hxj3abxTsuWr4" alt="Hellsing" />
     </p>
 </p>
 
