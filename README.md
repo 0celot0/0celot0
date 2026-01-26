@@ -29,8 +29,7 @@
 
 <p align="center">
  ╰┈➤	
- <a href="https://listography.com/4273821742?m=0580652416">listography</a>
-Pretty much all my stuff is on here!! (ata + straw)
+ <a href="https://spacehey.com/0celot_0">Spacehey</a>
 </p>
 
 <p align="center">
