@@ -5,14 +5,10 @@
 </p>
 
 <p align="center">
-    <img src="https://file.garden/Zy7nsVKnFHAuCMhW/dividers/monochromatic/mono48" alt="divider" width="759" height="500">
+    <img src="https://file.garden/Zy7nsVKnFHAuCMhW/dividers/monochromatic/mono48" alt="divider" width="759" height="100">
 
-<p>
-    <p align="center">
-        <img src="https://pixelbank.neocities.org/dangle/189.gif" alt="dangler">
-        <img src="https://i.pinimg.com/736x/58/4c/97/584c97d2c976483ea72b41a22e0b38fe.jpg" alt="widget" width="400" height="450" hspace="10" >
-        <img src="https://pixelbank.neocities.org/dangle/189.gif" alt="dangler">
-    </p>
+<img src="https://i.pinimg.com/736x/58/4c/97/584c97d2c976483ea72b41a22e0b38fe.jpg" alt="widget" width="400" height="450" hspace="10" >
+
 
 <p align="center">
      Most likely doing something with pt on in the background! Apologies if I do not respond.⋆˚࿔
@@ -33,12 +29,12 @@
 </p>
 
 <p align="center">
-    I am 14 btw so js keep that in mind..
+    I am 15 btw so js keep that in mind..
 </p>
 
 
 <p align="center" >
- <img src="https://gifcity.carrd.co/assets/images/gallery48/6e941e51.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="750">
+ <img src="https://gifcity.carrd.co/assets/images/gallery48/6e941e51.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="100">
 
 <p align="center">
     Free online course for learning <a href="https://www.freecodecamp.org/learn/responsive-web-design-v9/" target="_blank">html, css</a> and <a href="https://www.freecodecamp.org/learn/javascript-v9/"         target="_blank">Javascript</a> (currently doing these they r good!!)
