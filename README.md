@@ -19,13 +19,14 @@
  <p>
   <p align="center">
     <img src="https://i.imgur.com/8DTfsvj.gif" width="50" height="50" hspace="10" >
-    <img src="https://external-media.spacehey.net/media/smh0dJ4nVK7t8xlD0OVMOXtU4_Wk0SSkgL5JkXwyihYc=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/adaf4531-6b8f-4b04-9373-9b0fbd104e20/dac2emq-d3db8057-0d39-4398-946b-98e7e1c62026.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2FkYWY0NTMxLTZiOGYtNGIwNC05MzczLTliMGZiZDEwNGUyMFwvZGFjMmVtcS1kM2RiODA1Ny0wZDM5LTQzOTgtOTQ2Yi05OGU3ZTFjNjIwMjYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.QLDw5wIual50CEuTQmOPYZsgBw4MAah7q_EYJooAUlQ" width="100" height="100" hspace="10" >
+    <img src="https://external-media.spacehey.net/media/smh0dJ4nVK7t8xlD0OVMOXtU4_Wk0SSkgL5JkXwyihYc=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/adaf4531-6b8f-4b04-9373-9b0fbd104e20/dac2emq-d3db8057-0d39-4398-946b-98e7e1c62026.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2FkYWY0NTMxLTZiOGYtNGIwNC05MzczLTliMGZiZDEwNGUyMFwvZGFjMmVtcS1kM2RiODA1Ny0wZDM5LTQzOTgtOTQ2Yi05OGU3ZTFjNjIwMjYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.QLDw5wIual50CEuTQmOPYZsgBw4MAah7q_EYJooAUlQ" width="100" height="75" hspace="10" >
   <img src="https://i.imgur.com/8DTfsvj.gif" width="50" height="50" hspace="10" >
 </p>
 
 <p align="center">
  ╰┈➤	
- <a href="https://spacehey.com/0celot_0">Spacehey</a>
+ <a href="https://spacehey.com/0celot_0" target="_blank">Spacehey</a> ⁠♡ 
+ <a href="https://0celot.neocities.org" target="_blank">Neocities</a> (unfinished)
 </p>
 
 <p align="center">
