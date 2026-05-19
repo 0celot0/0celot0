@@ -1,46 +1,18 @@
+
+
+<p align="center">
+<img src="https://i.pinimg.com/originals/98/f8/e7/98f8e7b74f7539e002d048c651e93407.gif">
+</p>
+
+<p align="center">␥  ׅ ${\color{red}𝘩𝘦 / 𝘩𝘪𝘮}$​ ⌗ ${\color{#57111c}¹⁵}$ ›</p>
+<p align="center">.　⟢  ​ ${\color{red}INFP}$ ${\color{#57111c}so/sx}$ ${\color{red}4(w3)16}$​  .𖥔 ݁ ˖ </p>
+<p align="center"><a href="https://0celot0101.straw.page" >S</a>${\color{#d1cdca}traw}$ ៸៸៸ <a href="https://0celot00.atabook.org">新</a>${\color{#d1cdca}book}$ ៸៸៸ <a href="https://spacehey.com/0celot_0">S</a>${\color{#d1cdca}pacehey}$</p>
+
 <p align="center">
     <p align="center">
-        <img src="https://komarev.com/ghpvc/?username=0celot0&color=3d3d3d&style=for-the-badge&label=❤︎">
-        <img src="https://file.garden/Ze88s1ucmRDZDhMX/pixels/222.gif" alt="mouse">
+        <img src="https://komarev.com/ghpvc/?username=0celot0&color=57111c&style=for-the-badge&label=৻ꪆ">
 </p>
 
 <p align="center">
-    <img src="https://file.garden/Zy7nsVKnFHAuCMhW/dividers/monochromatic/mono48" alt="divider" width="759" height="100">
-
-<img src="https://i.pinimg.com/736x/58/4c/97/584c97d2c976483ea72b41a22e0b38fe.jpg" alt="widget" width="400" height="450" hspace="10" >
-
-
-<p align="center">
-     Most likely doing something with pt on in the background! Apologies if I do not respond.⋆˚࿔
-<p align="center">
-    I am really bad at rp so do not expect me to go along with ur rp or wtv
-
-
- <p>
-  <p align="center">
-    <img src="https://i.imgur.com/8DTfsvj.gif" width="50" height="50" hspace="10" >
-    <img src="https://external-media.spacehey.net/media/smh0dJ4nVK7t8xlD0OVMOXtU4_Wk0SSkgL5JkXwyihYc=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/adaf4531-6b8f-4b04-9373-9b0fbd104e20/dac2emq-d3db8057-0d39-4398-946b-98e7e1c62026.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2FkYWY0NTMxLTZiOGYtNGIwNC05MzczLTliMGZiZDEwNGUyMFwvZGFjMmVtcS1kM2RiODA1Ny0wZDM5LTQzOTgtOTQ2Yi05OGU3ZTFjNjIwMjYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.QLDw5wIual50CEuTQmOPYZsgBw4MAah7q_EYJooAUlQ" width="100" height="75" hspace="10" >
-  <img src="https://i.imgur.com/8DTfsvj.gif" width="50" height="50" hspace="10" >
-</p>
-
-<p align="center">
- ╰┈➤	
- <a href="https://spacehey.com/0celot_0" target="_blank">Spacehey</a> ⁠♡ 
- <a href="https://0celot.neocities.org" target="_blank">Neocities</a> (unfinished)
-</p>
-
-<p align="center">
-    I am 15 btw so js keep that in mind..
-</p>
-
-
-<p align="center" >
- <img src="https://gifcity.carrd.co/assets/images/gallery48/6e941e51.gif?v=e3c0bc0f" alt="Girl in a jacket" width="2000" height="100">
-
-<p align="center">
-    Free online course for learning <a href="https://www.freecodecamp.org/learn/responsive-web-design-v9/" target="_blank">html, css</a> and <a href="https://www.freecodecamp.org/learn/javascript-v9/"         target="_blank">Javascript</a> (currently doing these they r good!!)
-</p>
-
-<p align="center">
-    <img src="https://spotify-recently-played-readme.vercel.app/api?user=316ceak7q7qn4yb5bsnb5ivom2vq">
+    <img src="https://static.wikia.nocookie.net/houseki-no-kuni/images/3/33/Shinsha.png/revision/latest/scale-to-width/360?cb=20170825133015">
 </p>
