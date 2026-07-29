@@ -1,7 +1,7 @@
 
 
 <p align="center">
-<img src="https://i.pinimg.com/originals/98/f8/e7/98f8e7b74f7539e002d048c651e93407.gif">
+<img src="https://neocitiesimagestory.carrd.co/assets/images/image01.gif?v=cb5fb245">
 </p>
 
 <p align="center">␥  ׅ ${\color{red}𝘩𝘦 / 𝘩𝘪𝘮}$​ ⌗ ${\color{#57111c}¹⁵}$ ›</p>
@@ -14,5 +14,5 @@
 </p>
 
 <p align="center">
-    <img src="https://static.wikia.nocookie.net/houseki-no-kuni/images/3/33/Shinsha.png/revision/latest/scale-to-width/360?cb=20170825133015">
+    <img src="https://external-media.spacehey.net/media/szQlQX6voqzSPm5tuNssMqkKZEZP1Q0sXIg8rM9g3Lz4=/https://stampbank11100.carrd.co/assets/images/image08.gif?v=56cc17c9">
 </p>
