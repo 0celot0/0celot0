@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">␥  ׅ ${\color{#e8e8e8}𝘩𝘦 / 𝘩𝘪𝘮}$​ ⌗ ${\color{#446070}¹⁵}$ ›</p>
-<p align="center">.　⟢  ​ ${\color{#e8e8e8}INFP}$ ${\color{#446070}so/sx}$ ${\color{#e8e8e8}4(w3)61}$​  .𖥔 ݁ ˖ </p>
+<p align="center">.　⟢  ​ ${\color{#e8e8e8}INFP}$ ${\color{#446070}sp/sx}$ ${\color{#e8e8e8}4(w3)61}$​  .𖥔 ݁ ˖ </p>
 <p align="center"><a href="https://0celot0101.straw.page" >S</a>${\color{#d1cdca}traw}$ ៸៸៸ <a href="https://0celot00.atabook.org">新</a>${\color{#d1cdca}book}$ ៸៸៸ <a href="https://spacehey.com/0celot_0">S</a>${\color{#d1cdca}pacehey}$ ៸៸៸ <a href="https://0celot.neocities.org/">N</a>${\color{#d1cdca}eocities (wip)}$</p>
 
 <p align="center">
